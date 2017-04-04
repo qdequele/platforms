@@ -13,13 +13,13 @@ A propos de barrières, elles sont bien souvent psychologiques. Je questionne au
 Aujourd'hui je m'offre le temps de formuler mes émotions, pour croire en leur puissance et les rendre immortelles.
 
 
-# Le ciel d’avril est toujours blose.
+## Le ciel d’avril est toujours blose.
 
 Quand je roule, c’est toujours beaucoup de souvenirs qui s’effacent et qui se dessinent. Aux sens propres comme aux figurés. Je me suis laissé imaginer un lieu, une image, une odeur, une présence et sonder ma mémoire émotionnelle.
 
 ---
 
-## Paris Est
+### Paris Est
 
 En hiver, Paris la nuit.
 Sur un pont, des rails à perte de vue.
@@ -32,7 +32,7 @@ Heetch n’existait pas mais j'aurais bien aimé !
 
 ---
 
-## Avenue Trudaine
+### Avenue Trudaine
 
 Une terrasse couverte du 9è.
 Le carrefour en bas de chez moi. Comment elle sait ?
@@ -48,7 +48,7 @@ On s'est recroisé, on a discuté. Elle ne m’a pas intéressée.
 
 ---
 
-## Versailles
+### Versailles
 
 L'espace est immense. C'est la première fois que je viens, elle vit à deux pas.
 Les touristes sont nombreux, l'architecture chargée d'histoire.
@@ -62,7 +62,7 @@ Je suis arrivé en retard. Je ne lui ai pas donné de nouvelles.
 
 ---
 
-## 26 YPSRAE
+### 26 YPSRAE
 
 Au delà les tours de La Défense, un privilège de l'Ouest Parisien.
 L'incertitude dans son expression la plus pure.
@@ -78,7 +78,7 @@ Je l’ai sublimée.
 
 ---
 
-## Quai d’Austerlitz
+### Quai d’Austerlitz
 
 Beaucoup de monde, beaucoup de bruit.
 Elle est sortie de nulle part.
@@ -96,7 +96,7 @@ Pour elle je n'ai que de l'amour et de la gratitude.
 ---
 
 
-## On n’a même pas essayé le cerf-volant
+### On n’a même pas essayé le cerf-volant
 
 Elle est partout, tout le temps qui passe, à mes côtés.
 Notre rencontre est trop ancienne pour s'en rappeler.
