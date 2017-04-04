@@ -15,7 +15,7 @@ Aujourd'hui je m'offre le temps de formuler mes émotions, pour croire en leur p
 
 # Le ciel d’avril est toujours blose.
 
-Quand je roule, c’est toujours beaucoup de souvenirs qui s’effacent et qui se dessinent. Aux sens propres comme aux figurés. Je me suis laissé imaginer un lieu, une image, une odeur une présence et sonder ma mémoire émotionnelle.
+Quand je roule, c’est toujours beaucoup de souvenirs qui s’effacent et qui se dessinent. Aux sens propres comme aux figurés. Je me suis laissé imaginer un lieu, une image, une odeur, une présence et sonder ma mémoire émotionnelle.
 
 ---
 
