@@ -2,7 +2,7 @@
 
 ## Sentimentalité à l'âge de la multitude
 
-J'ai réalisé récemment que le syndrome d'Amour virtuel inconditionné pourrait bien être la cause de tous mes maux. De nombreuses déceptions récentes m'ont amenées à développer une volonté d'apprendre à dialoguer avec mon moi intérieur et reconsidérer ma relation avec le monde qui m'entoure.
+J'ai réalisé récemment que le syndrome d'Amour virtuel inconditionné pourrait bien être la cause de tous mes maux. De nombreuses déceptions m'ont amenées à développer une volonté d'apprendre à dialoguer avec mon moi intérieur et reconsidérer ma relation avec le monde qui m'entoure.
 
 J'expose ici le culte de mes nombreuses personnalités plutôt que de prendre le risque de les voir mourir dans mes bulles éphémères, mentales ou matérielles.
 
