@@ -27,7 +27,7 @@ Je n’ai jamais eu de chance à la loterie mais ça ne coûte rien d’essayer.
 
 ### Tu n’es pas amoureux de moi, tu es amoureux de nous
 
-Elle avait raison, je viens a peine de l'accepter même si je le savais depuis longtemps. Ce que je retiens, c'est que même plusieurs années plus tard elle m'a rendu à sa manière beaucoup plus que ce que je lui avait donné. Grâce à elle j'ai voyagé, je me suis élevé, j’ai appris. Elle m'a avait des rêves, je n'étais pas celui qu'elle voulait que je sois. Je suis devenu celui dont elle aurait rêvé.
+Elle avait raison, je viens a peine de l'accepter même si je le savais depuis longtemps. Ce que je retiens, c'est que même plusieurs années plus tard elle m'a rendu à sa manière beaucoup plus que ce que je lui avait donné. Grâce à elle j'ai voyagé, je me suis élevé, j’ai appris. Elle avait des rêves, je n'étais pas celui qu'elle voulait que je sois. Je suis devenu celui dont elle aurait rêvé.
 
 Les imbéciles voient une erreur lorsqu’ils se trompent, les autres une information.
 
