@@ -6,8 +6,6 @@
 >
 > Z, K. A-r ; N, NNT AD SA AN ;
 
-A partir du moment où ils écoutent, les autres sont plus nombreux.
-
 Les imbéciles se sentent fragiles lorsqu’ils ne comprennent pas les autres.
 
 J’ai vu des amoureux malheureux parce qu’ils ne s’écoutaient pas.
